@@ -1,4 +1,4 @@
-## Fala irmão 
+## 
 
 - Futebol ⚽
 - Corinthians até o fim 🦅
