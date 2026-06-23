@@ -6,5 +6,5 @@
 - Rap 🎵
 - Estudante 📖
 
-- ![](https://media.tenor.com/GNdBjYBUJ-cAAAAC/torcida-crowd.gif)
+- ![](https://media.tenor.com/Bqk2tf1nlekAAAAC/gavioes-da-fiel-gavioes.gif)
 
