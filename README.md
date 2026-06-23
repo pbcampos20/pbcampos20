@@ -6,3 +6,5 @@
 - Rap 🎵
 - Estudante 📖
 
+- ![](https://media.tenor.com/GNdBjYBUJ-cAAAAC/torcida-crowd.gif)
+
