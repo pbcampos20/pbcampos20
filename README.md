@@ -6,7 +6,5 @@
 - Rap 🎵
 - Estudante 📖
 
-- 
-
-- ![](https://media.tenor.com/Bqk2tf1nlekAAAAC/gavioes-da-fiel-gavioes.gif)
+  ![](https://media.tenor.com/Z9UKLaSWlOoAAAAC/2pac-2pac-two-pac-twopac-westcoast-coast-west-rap-rapgame-oldschool.gif)
 
