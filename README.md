@@ -6,5 +6,5 @@
 - # Rap 🎵
 - # Estudante 📖
 
-  ![](https://media1.tenor.com/m/k91_PDDVngsAAAAd/corinthians-gato-futebol.gif)
+  ![](https://media1.tenor.com/m/kD4-I3SkIoAAAAAC/cinco-de-drinko-cabj.gif)
 
