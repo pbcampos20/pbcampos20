@@ -6,5 +6,5 @@
 - # Rap 🎵
 - # Estudante 📖
 
-  ![](https://media.tenor.com/Z9UKLaSWlOoAAAAC/2pac-2pac-two-pac-twopac-westcoast-coast-west-rap-rapgame-oldschool.gif)
+  ![](https://media1.tenor.com/m/k91_PDDVngsAAAAd/corinthians-gato-futebol.gif)
 
